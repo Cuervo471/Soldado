@@ -1,0 +1,2 @@
+# Soldado
+Bitcoin y paga
